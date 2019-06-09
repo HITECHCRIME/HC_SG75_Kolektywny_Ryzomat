@@ -21,10 +21,15 @@ leży w ziemi i w ryzomie - lasów zagadka
 
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
 
+nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
+
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
 
 widzę a jestem ślepy na tym łonie
 bo betonem wyłożone
+
+
+
 
 ```

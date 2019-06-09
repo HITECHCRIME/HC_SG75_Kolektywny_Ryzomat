@@ -19,7 +19,7 @@ leży w ziemi i w ryzomie - lasów zagadka
 lasów zagadka
 (podmienić) _leży w ziemi i ryzomie_ moc lata ćma prześci drzemie w nocy  - po świadkach
 po świadkach
-(podmienić) _trop jest prosty, spuść ten wzrok_ (każąc mnie) - po poszlakach
+(podmienić) _trop jest prosty, spuść ten wzrok_ (każąc mnie) - po poszlakach (nie)
 po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
 

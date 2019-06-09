@@ -17,7 +17,7 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
 
-(podmienić) _leży w ziemi i ryzomie_ - po świadkach
+(podmienić) _leży w ziemi i ryzomie_ drzemie w nocy - po świadkach
 
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
 
@@ -51,6 +51,8 @@ leży w ziemi i w ryzomie - lasów zagadka
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
 
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
+
+tylko stealth, żadna marka
 
 
 

@@ -46,7 +46,8 @@ leży w ziemi i w ryzomie - lasów zagadka
 
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
-tylko stealth, żadna marka
+tylko stealth, żadna marka - nike
+acronym
 
 
 

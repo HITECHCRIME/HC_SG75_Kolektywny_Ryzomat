@@ -16,10 +16,15 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-(podmienić) _leży w ziemi i ryzomie_ moc ćma prześci drzemie w nocy  - po świadkach
+lasów zagadka
+(podmienić) _leży w ziemi i ryzomie_ moc lata ćma prześci drzemie w nocy  - po świadkach
+po świadkach
 (podmienić) _trop jest prosty, spuść ten wzrok_ (każąc mnie) - po poszlakach
+po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
+
 (kable ryzomu, system nieskończony i mityczny, można gdzieś dodać)
+
 leży w ziemi i w ryzomie - lasów zagadka
 (podmienić) _leży w ziemi i ryzomie_ - po świadkach
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach

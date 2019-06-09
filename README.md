@@ -16,7 +16,7 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-(podmienić) _leży w ziemi i ryzomie_ prześci drzemie w nocy - po świadkach
+(podmienić) _leży w ziemi i ryzomie_ moc prześci drzemie w nocy - po świadkach
 (podmienić) _trop jest prosty, spuść ten wzrok_ (każąc) - po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
 (kable ryzomu, system nieskończony i mityczny, można gdzieś dodać)
@@ -53,3 +53,8 @@ tylko stealth, żadna marka
 
 
 ```
+
+## Music Video
+
+Sara Mora x Helve AVR - visuals. Hitech Crime - audio.
+Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc.

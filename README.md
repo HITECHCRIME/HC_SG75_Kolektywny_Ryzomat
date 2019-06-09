@@ -8,7 +8,7 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 0:45
 
-jadę dalej lasem - lasem sztucznyyyyych prawd 
+jadę dalej lasem - lasem sztucznyyyych praaaaaaaawd 
 - wytyczonych w darni ścian
 twoja zwojem przeplatana mantra - start
 na konarach martwych wydziarana prawda
@@ -16,19 +16,12 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-
-(podmienić) _leży w ziemi i ryzomie_ drzemie w nocy - po świadkach
-
+(podmienić) _leży w ziemi i ryzomie_ prześci drzemie w nocy - po świadkach
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
-
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
-
 leży w ziemi i w ryzomie - lasów zagadka
-
 (podmienić) _leży w ziemi i ryzomie_ - po świadkach
-
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
-
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
 dołączam do sieci korzeni, impulsów szał

@@ -16,7 +16,7 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka                                            (lasów zagadka)
-- ćma i/plus hc x doswiadczenie to poświadcza                            - po świadkach (po świadkach, poświadczam)
+- ćma i/plus hc x doswiadczenie to poświadcza                        hcx ta ćma    - po świadkach (po świadkach, poświadczam)
 trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (fokus wzrok na drodze)
 
 - po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach (na tych szlakach)

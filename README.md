@@ -17,22 +17,20 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie 
 - lasów zagadka (lasów zagadka)
-ćma nie drzemie, pośród łąk w nocy lata 
-- po świadkach (po świadkach)
-trop jest prosty, spuść ten wzrok każąc mnie 
-- po poszlakach (nie) (las już płonie) po poszlakach
+(doświadczenie lata)
+- po świadkach (po świadkach, poświadczam)
+trop jest prosty, spuść ten wzrok każąc mnie skazując
+- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
 
-(kable ryzomu, system nieskończony i mityczny, można gdzieś dodać)
-
 leży w ziemi i w ryzomie - lasów zagadka
-(podmienić) _leży w ziemi i ryzomie_ - po świadkach
+(podmienić) ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
-
+kable ryzomu, system nieskończony i mityczny
 widzę a jestem ślepy na tym łonie
 bo betonem wyłożone
 
@@ -50,6 +48,8 @@ leży w ziemi i w ryzomie - lasów zagadka
 (podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
 
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
+
+(las już płonie, lasu zgliszcza)
 
 tylko stealth, żadna marka - nike
 acronym

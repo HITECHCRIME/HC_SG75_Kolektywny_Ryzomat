@@ -28,9 +28,11 @@ leży w ziemi i w ryzomie - lasów zagadka
 mech nas gna - skupiam wzrok na drodze  - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 
+leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
+
 kable ryzomu, system nieskończony, ba mityczny
 
 widzę a jestem ślepy na tym twardym łonie

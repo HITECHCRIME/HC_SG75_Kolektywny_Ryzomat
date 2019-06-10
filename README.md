@@ -17,19 +17,20 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
 - hcx ćmy doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
-trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (skup ten wzrok na drodze)
-- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach             (mech mnie gna)  (na tych szlakach)
-
+trop jest prosty, spuść ten wzrok no (po drodze)                              (każąc mnie skazując) 
+- po poszlakach (nie)  po poszlakach             
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
-(podmienić) ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
-(podmienić) _trop jest prosty, spuść ten wzrok_ - po poszlakach
+ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
+mech nas gna skup ten wzrok na drodze - na tych szlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
+(las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
-kable ryzomu, system nieskończony i mityczny
+kable ryzomu, system nieskończony, ba mityczny
+
 widzę a jestem ślepy na tym łonie
 bo betonem wyłożone
 
@@ -53,6 +54,9 @@ nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 tylko stealth, żadna marka - nike
 acronym
  moc 
+
+
+ale suta taka salwa
 
 
 

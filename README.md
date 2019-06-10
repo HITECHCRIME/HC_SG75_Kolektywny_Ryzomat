@@ -32,7 +32,7 @@ przestrzeni, gnam przez nołdy, wzrok rozmyty
 kable ryzomu, system nieskończony, ba mityczny
 
 widzę a jestem ślepy na tym twardym łonie
-betonem wyłożonym
+- betonem wyłożone (ym)
 
 jadę dalej lasem - lasem sztucznyyyyych prawd 
 - wytyczonych w darni ścian

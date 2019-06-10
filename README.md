@@ -16,11 +16,11 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
-- ćma i/plus hc x doswiadczenie to poświadcza                        hcx to ćma    - po świadkach (po świadkach, poświadczam)
+- hcx ćma doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
 trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (skup ten wzrok na drodze)
 - po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach             (mech mnie gna)  (na tych szlakach)
 
-nie zetną tu (mi) wysokie (wysokich tui) tuje - dających światło (dające)
+nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
 (podmienić) ćma nie podrzemie, pośród łąk w nocy lata - po świadkach

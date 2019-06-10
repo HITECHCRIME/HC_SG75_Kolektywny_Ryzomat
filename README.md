@@ -39,12 +39,16 @@ widzę a jestem ślepy na tym twardym łonie
 śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw
 x
 kronia poniem wszystko względne wszystko wszystkim jedno - tak____
-na wyjeździe z tej natury postawiona bramka
+na wyjeździe z tej naszej natury postawiona bramka
 
-ale rzucam wyzwanie w szyfrach (to wyzwanie)
-
-na wyjeździe z natury postawiona bramka
+na wyjeździe z tej naszej natury postawiona bramka
 na konarach martwych wydziarana prawda (trwa)
+
+ale rzucam wyzwania w szyfrach (to wyzwanie)
+
+leży w ziemi i w ryzomie - lasów zagadka
+tułamy przez ten gres jak zwierzęta w klatkach
+
 
 
 

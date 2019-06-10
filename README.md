@@ -10,7 +10,7 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 jadę dalej lasem - lasem sztucznyyyych praaaaaaaawd 
 - wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start
+twoja zwojem przeplatana mantra - start (trwa)
 na konarach martwych wydziarana prawda
 
 ale pusta taka sarna

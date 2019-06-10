@@ -24,15 +24,15 @@ nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dają
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
 mech nas gna - skup wzrok na drodze  - na tych szlakach
-nie zetną tu wysokie (wysokich tui) tuje księżyc dzisiaj płonie - jego (mrugające) światło to prawda
+nie zetną tu wysokie (wysokich tui) tuje księżyc płonie / dziś otwiera oko - jego (mrugające) światło to - praaaa-wda.
 
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
 kable ryzomu, system nieskończony, ba mityczny
 
-widzę a jestem ślepy na tym łonie
-bo betonem wyłożone
+widzę a jestem ślepy na tym twardym łonie
+betonem wyłożonym
 
 jadę dalej lasem - lasem sztucznyyyyych prawd 
 - wytyczonych w darni ścian

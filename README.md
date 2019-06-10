@@ -41,7 +41,7 @@ jadę dalej lasem - lasem sztucznyyyyych prawd
 twoja zwojem przeplatana mantra - start
 na konarach martwych wydziarana prawda
 
-śpię nie tylko czasem - czasem próżnych spraw
+śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw
 x
 kronia poniem wszystko względne wszystko wszystkim jedno - tak____
 na wyjeździe z tej natury postawiona bramka

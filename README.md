@@ -20,9 +20,9 @@ ale pusta taka sarna
 (ZMIENIĆ NA SPUSZCZAM WZROK NO, NIE OCENIAM PO POSZLAKACH ALE...NIE ZETNĄ...)
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
-ćma nie drzemie, (w ślad tych łąk) -pośród łąk- lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam)
+ćma nie drzemie, w ślad tych łąk lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam) -pośród łąk-
 trop jest prosty w sieci - nie ocieniam - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
-nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (dające)
+nie zetną tych wysokich tui - dających światła                                   tu/(mi) wysokie
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie najpierw lotem poświadczam           hcx to) ćma  ćma i/plus hc x

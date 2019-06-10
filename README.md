@@ -16,7 +16,7 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
-- hcx ćmy doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
+- ćmy hcx doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
 trop jest prosty, spuść ten wzrok no (po drodze)                              (każąc mnie skazując) 
 - po poszlakach (nie)  po poszlakach             
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dające)
@@ -66,4 +66,4 @@ ale suta taka salwa
 ## Music Video
 
 Sara Mora x Helve AVR - visuals. Hitech Crime - audio.
-Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc.
+Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc. Moss as money.

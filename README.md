@@ -8,7 +8,7 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 0:45
 
-jadę dalej lasem - lasem sztucznyyyych praaaaaaaawd 
+jadę dalej lasem - lasem sztucznych praaawd 
 - wytyczonych w darni ścian
 twoja zwojem przeplatana mantra - start (trwa)
 na konarach martwych wydziarana prawda (trwa)
@@ -19,14 +19,14 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
 - ćmy hc doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
-trop jest prosty, (ziemi^sieci) spuść ten wzrok no (po drodze) - nie ocieniaj         (każąc mnie skazując) 
+trop jest prosty, (ziemi^sieci) - nie ocieniam         (każąc mnie skazując) 
 - po poszlakach (po poszlakach)            
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
-mech nas gna - skup wzrok na drodze  - na tych szlakach
-księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda.
+mech nas gna - skupiam wzrok na drodze  - na tych szlakach
+księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
@@ -49,8 +49,9 @@ ale rzucam wyzwania w szyfrach (to wyzwanie)
 leży w ziemi i w ryzomie - lasów zagadka
 tułamy przez ten gres jak zwierzęta w klatkach
 
-
-
+tylko stealth, żadna marka
+ale suta taka salwa
+ale gusta nie rozważaj
 
 ale pusta taka sarna
 
@@ -64,14 +65,9 @@ nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
 (las już płonie, lasu zgliszcza)
 
-tylko stealth, żadna marka - nike
+- nike
 acronym
  moc 
-
-
-ale suta taka salwa
-
-ale gusta nie rozważaj
 
 
 ```

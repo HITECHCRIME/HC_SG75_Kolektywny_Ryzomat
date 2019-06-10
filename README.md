@@ -26,7 +26,7 @@ nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (da
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
 mech nas gna - skup wzrok na drodze  - na tych szlakach
-nie zetną tu wysokie (wysokich tui) tuje księżyc płonie / dziś otwiera oko - jego (mrugające) światło to - praaaa-wda.
+księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda.
 
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
@@ -35,11 +35,6 @@ kable ryzomu, system nieskończony, ba mityczny
 
 widzę a jestem ślepy na tym twardym łonie
 - betonem wyłożone (ym)
-
-jadę dalej lasem - lasem sztucznyyyyych prawd 
-- wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start
-na konarach martwych wydziarana prawda
 
 śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw
 x
@@ -72,7 +67,7 @@ acronym
 
 ale suta taka salwa
 
-
+ale gusta nie rozważaj
 
 
 ```

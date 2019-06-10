@@ -17,7 +17,7 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie 
 - lasów zagadka (lasów zagadka)
-(doświadczenie lata)
+ćma w umyśle doświadczenie lata/poświadcza)
 - po świadkach (po świadkach, poświadczam)
 trop jest prosty, spuść ten wzrok każąc mnie skazując
 - po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach

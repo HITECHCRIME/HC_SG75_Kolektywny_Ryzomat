@@ -24,7 +24,7 @@ nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dają
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
 mech nas gna - skup wzrok na drodze  - na tych szlakach
-nie zetną tu wysokie (wysokich tui) tuje - te światła to prawda
+nie zetną tu wysokie (wysokich tui) tuje księżyc dzisiaj płonie - jego (mrugające) światło to prawda
 
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
@@ -66,4 +66,4 @@ ale suta taka salwa
 ## Music Video
 
 Sara Mora x Helve AVR - visuals. Hitech Crime - audio.
-Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc. Moss as money.
+Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc. Moss as money. Motyw "don't look at the moon" (w momentach kiedy się pojawia księżyc w ujęciu).

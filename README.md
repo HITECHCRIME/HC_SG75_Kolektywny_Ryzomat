@@ -11,7 +11,7 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 jadę dalej lasem - lasem sztucznyyyych praaaaaaaawd 
 - wytyczonych w darni ścian
 twoja zwojem przeplatana mantra - start (trwa)
-na konarach martwych wydziarana prawda
+na konarach martwych wydziarana prawda (trwa)
 
 ale pusta taka sarna
 
@@ -23,8 +23,8 @@ nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dają
 
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
-mech nas gna skup ten wzrok na drodze - na tych szlakach
-nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
+mech nas gna - skup wzrok na drodze  - na tych szlakach
+nie zetną tu wysokie (wysokich tui) tuje - te światła to prawda
 
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał

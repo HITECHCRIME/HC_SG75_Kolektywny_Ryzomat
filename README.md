@@ -17,8 +17,8 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
 - ćmy hc doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
-trop jest prosty, spuść ten wzrok no (po drodze)                              (każąc mnie skazując) 
-- nie ocieniaj - po poszlakach (nie)  po poszlakach             
+trop jest prosty, (ziemi^sieci) spuść ten wzrok no (po drodze) - nie ocieniaj         (każąc mnie skazując) 
+- po poszlakach (po poszlakach)            
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka

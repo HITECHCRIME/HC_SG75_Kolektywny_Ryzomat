@@ -24,7 +24,7 @@ trop jest prosty, (ziemi^sieci) - nie ocieniam         (każąc mnie skazując)
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
-ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
+ćma nie podrzemie, (w ślad tych łąk) -pośród łąk- w nocy lata - po świadkach
 mech nas gna - skupiam wzrok na drodze  - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 
@@ -32,8 +32,7 @@ leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
-
-kable ryzomu, system nieskończony, ba mityczny
+właściciel kabli ryzomu, system nieskończony, ba mityczny
 
 widzę a jestem ślepy na tym twardym łonie
 - betonem wyłożone (ym)

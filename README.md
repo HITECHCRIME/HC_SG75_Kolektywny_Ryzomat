@@ -17,9 +17,9 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie lasów zagadka                                            (lasów zagadka)
 - ćma i/plus hc x doswiadczenie to poświadcza                        hcx to ćma    - po świadkach (po świadkach, poświadczam)
-trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (fokus wzrok na drodze)
+trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (skup ten wzrok na drodze)
 
-- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach (na tych szlakach)
+- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach                              (na tych szlakach)
 
 nie zetną tu (mi) wysokie (wysokich tui) tuje - dających światło (dające)
 

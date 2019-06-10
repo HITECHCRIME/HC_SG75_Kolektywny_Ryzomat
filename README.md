@@ -15,13 +15,13 @@ na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
-leży w ziemi i w ryzomie 
-- lasów zagadka (lasów zagadka)
-ćma w umyśle doświadczenie lata/poświadcza)
-- po świadkach (po świadkach, poświadczam)
-trop jest prosty, spuść ten wzrok każąc mnie skazując
-- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach
-nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
+leży w ziemi i w ryzomie lasów zagadka                                            (lasów zagadka)
+- ćma i/plus hc x doswiadczenie to poświadcza                            - po świadkach (po świadkach, poświadczam)
+trop jest prosty, spuść ten wzrok po drodze                                 (każąc mnie skazując) (fokus wzrok na drodze)
+
+- po poszlakach (nie) (las już płonie, lasu zgliszcza) po poszlakach (na tych szlakach)
+
+nie zetną tu (mi) wysokie (wysokich tui) tuje - dających światło (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
 (podmienić) ćma nie podrzemie, pośród łąk w nocy lata - po świadkach

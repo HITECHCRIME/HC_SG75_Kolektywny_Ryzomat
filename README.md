@@ -15,11 +15,13 @@ na konarach martwych wydziarana prawda (trwa)
 
 ale pusta taka sarna
 
+(ZMIENIĆ NA SPUSZCZAM WZROK NO, NIE OCENIAM PO POSZLAKACH ALE...NIE ZETNĄ...)
+
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
 - ćmy hc doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
 trop jest prosty, (ziemi^sieci) spuść ten wzrok no (po drodze) - nie ocieniaj         (każąc mnie skazując) 
 - po poszlakach (po poszlakach)            
-nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło (dające)
+nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
 ćma nie podrzemie, pośród łąk w nocy lata - po świadkach
@@ -38,6 +40,14 @@ jadę dalej lasem - lasem sztucznyyyyych prawd
 - wytyczonych w darni ścian
 twoja zwojem przeplatana mantra - start
 na konarach martwych wydziarana prawda
+
+x
+x
+_____wszystko względne - tak____
+na wyjeździe z natury postawiona bramka
+na konarach martwych wydziarana prawda (trwa)
+
+
 
 ale pusta taka sarna
 

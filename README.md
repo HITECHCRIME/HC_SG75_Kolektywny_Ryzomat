@@ -6,6 +6,8 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 ```
 
+Long intro?
+
 0:45
 
 jadę dalej lasem - lasem sztucznych praaawd 

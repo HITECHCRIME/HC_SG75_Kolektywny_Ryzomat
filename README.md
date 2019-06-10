@@ -43,8 +43,10 @@ na konarach martwych wydziarana prawda
 
 śpię nie tylko czasem - czasem próżnych spraw
 x
-kronia poniem wszystko względne - tak____
+kronia poniem wszystko względne wszystko wszystkim jedno - tak____
 na wyjeździe z tej natury postawiona bramka
+
+ale rzucam wyzwanie w szyfrach (to wyzwanie)
 
 na wyjeździe z natury postawiona bramka
 na konarach martwych wydziarana prawda (trwa)

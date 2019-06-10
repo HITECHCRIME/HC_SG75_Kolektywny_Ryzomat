@@ -20,13 +20,12 @@ ale pusta taka sarna
 (ZMIENIĆ NA SPUSZCZAM WZROK NO, NIE OCENIAM PO POSZLAKACH ALE...NIE ZETNĄ...)
 
 leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
-- ćmy hc doswiadczenie najpierw poświadcza           hcx to) ćma  ćma i/plus hc x  - po świadkach (po świadkach, poświadczam)
-trop jest prosty, (ziemi^sieci) - nie ocieniam         (każąc mnie skazując) 
-- po poszlakach (po poszlakach)            
+ćma nie drzemie, (w ślad tych łąk) -pośród łąk- w nocy lata - po świadkach    - po świadkach (po świadkach, poświadczam)
+trop jest prosty - nie ocieniam - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
 nie zetną tu/tych (mi) wysokie (wysokich tui) tuje - dających światło(a) (dające)
 
 leży w ziemi i w ryzomie - lasów zagadka
-ćma nie podrzemie, (w ślad tych łąk) -pośród łąk- w nocy lata - po świadkach
+- ćmy hc doswiadczenie najpierw lotem poświadczam           hcx to) ćma  ćma i/plus hc x
 mech nas gna - skupiam wzrok na drodze  - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 

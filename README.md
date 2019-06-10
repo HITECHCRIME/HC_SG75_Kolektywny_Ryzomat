@@ -15,12 +15,12 @@ na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
-leży w ziemi i w ryzomie - lasów zagadka
-lasów zagadka
-(podmienić) _leży w ziemi i ryzomie_ ćma nie drzemie, pośród łąkę lata w nocy / moc lata ćma prześci drzemie w nocy  - po świadkach
-po świadkach
-(podmienić) _trop jest prosty, spuść ten wzrok_ (każąc mnie) - po poszlakach (nie)
-po poszlakach
+leży w ziemi i w ryzomie 
+- lasów zagadka (lasów zagadka)
+ćma nie drzemie, pośród łąk w nocy lata 
+- po świadkach (po świadkach)
+trop jest prosty, spuść ten wzrok każąc mnie 
+- po poszlakach (nie) (las już płonie) po poszlakach
 nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło 
 
 (kable ryzomu, system nieskończony i mityczny, można gdzieś dodać)
@@ -53,7 +53,7 @@ nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
 tylko stealth, żadna marka - nike
 acronym
-
+ moc 
 
 
 

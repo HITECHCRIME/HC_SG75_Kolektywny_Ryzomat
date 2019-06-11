@@ -68,7 +68,7 @@ nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 
 (las już płonie, lasu zgliszcza)
 
-- nike
+nike
 acronym
  moc 
 

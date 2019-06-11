@@ -21,7 +21,7 @@ ale pusta taka sarna
 leży w ziemi i w ryzomie - lasów zagadka ej                                           (lasów zagadka)
 w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam) -pośród łąk-
 trop jest (prosty) w sieci - nie ocieniam was (nie śmiem jej oceniać) - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
-nie zetną (nam) tych wysokich tui - dających światła                                   tu/(mi) wysokie
+(nim) nie zetną (nam) tych wysokich tui - dających światła                                   tu/(mi) wysokie
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x

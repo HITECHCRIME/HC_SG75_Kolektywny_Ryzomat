@@ -10,23 +10,22 @@ Long intro?
 
 0:45
 
-jadę dalej lasem - lasem sztucznych praaawd 
+jadę dalej lasem - lasem sztucznych praaawd (praw)
 - wytyczonych w darni ścian
+
 twoja zwojem przeplatana mantra - start (trwa)
-na konarach martwych wydziarana prawda (trwa)
+na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
-(ZMIENIĆ NA SPUSZCZAM WZROK NO, NIE OCENIAM PO POSZLAKACH ALE...NIE ZETNĄ...)
-
-leży w ziemi i w ryzomie lasów zagadka ej                                           (lasów zagadka)
-ćma nie drzemie, w ślad tych łąk lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam) -pośród łąk-
-trop jest prosty w sieci - nie ocieniam - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
-nie zetną tych wysokich tui - dających światła                                   tu/(mi) wysokie
+leży w ziemi i w ryzomie - lasów zagadka ej                                           (lasów zagadka)
+w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam) -pośród łąk-
+trop jest (prosty) w sieci - nie ocieniam was (nie śmiem jej oceniać) - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
+nie zetną (nam) tych wysokich tui - dających światła                                   tu/(mi) wysokie
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćmy hc doswiadczenie najpierw lotem poświadczam           hcx to) ćma  ćma i/plus hc x
-mech nas gna - skupiam wzrok na drodze  - na tych szlakach
+- ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x
+mech nas gna - skupiam wzrok na drodze - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 
 leży w ziemi i w ryzomie - lasów zagadka
@@ -38,7 +37,7 @@ właściciel kabli ryzomu, system nieskończony, ba mityczny
 widzę a jestem ślepy na tym twardym łonie
 - betonem wyłożone (ym)
 
-śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw
+śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw (praw)
 x
 kronia poniem wszystko względne wszystko wszystkim jedno - tak____
 na wyjeździe z tej naszej natury postawiona bramka

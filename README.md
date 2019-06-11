@@ -20,8 +20,16 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie (10) - lasów zagadka (5)                                          (lasów zagadka)
 w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy (11) - po świadkach (3) - po świadkach (po świadkach, poświadczam) -pośród łąk-
-trop jest w sieci - nie ocieniam was (nie śmiem jej oceniać) (11) - po poszlakach (4) (po poszlakach)   (prosty)(każąc mnie skazując)
+(trop w podziemnej sieci) trop jest w sieci - nie ocieniam was (nie śmiem jej oceniać) (11) - po poszlakach (4) (po poszlakach)   (prosty)(każąc mnie skazując)
 nim nie zetną nam wysokich tui (10) - dających światła (5)                  (tych)                   tu/(mi) wysokie
+
+jadę dalej lasem - lasem sztucznych praaawd (praw)
+- wytyczonych w darni ścian
+
+twoja zwojem przeplatana mantra - start (trwa)
+na konarach martwych wydziarana prawda
+
+ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x
@@ -37,7 +45,7 @@ właściciel kabli ryzomu, system nieskończony, ba mityczny
 właściciel korzeni zaparzy z otchłani
 
 widzę a jestem ślepy na tym twardym łonie
-- betonem wyłożone (ym)
+glitche widzę, niby ta natura, ale betonem wyłożona
 
 śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw (praw)
 x

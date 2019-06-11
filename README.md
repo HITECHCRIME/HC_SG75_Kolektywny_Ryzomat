@@ -25,8 +25,9 @@ nim nie zetną nam wysokich tui (10) - dających światła (5)                  
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x
-mech nas gna - skupiam wzrok na drodze - na tych szlakach
+mech nas gna - skupiam wzrok (na drodze) - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
+często nie po drodze
 
 leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)

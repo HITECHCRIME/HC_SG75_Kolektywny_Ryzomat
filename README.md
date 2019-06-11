@@ -79,6 +79,7 @@ nie zetną tu wysokie (wysokich tui) tuje - dających (dające) światło
 nike
 acronym
  moc 
+ ryzomatów kolektyw
 
 
 ```

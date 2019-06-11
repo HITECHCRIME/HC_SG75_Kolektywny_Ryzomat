@@ -18,10 +18,10 @@ na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
-leży w ziemi i w ryzomie - lasów zagadka ej                                           (lasów zagadka)
-w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy - po świadkach    - po świadkach (po świadkach, poświadczam) -pośród łąk-
-trop jest (prosty) w sieci - nie ocieniam was (nie śmiem jej oceniać) - po poszlakach (po poszlakach)                (każąc mnie skazując) (ziemi^sieci)
-(nim) nie zetną (nam) tych wysokich tui - dających światła                                   tu/(mi) wysokie
+leży w ziemi i w ryzomie (10) - lasów zagadka (5)                                          (lasów zagadka)
+w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy (11) - po świadkach (3) - po świadkach (po świadkach, poświadczam) -pośród łąk-
+trop jest w sieci - nie ocieniam was (nie śmiem jej oceniać) (11) - po poszlakach (4) (po poszlakach)   (prosty)(każąc mnie skazując)
+nim nie zetną nam wysokich tui (10) - dających światła (5)                  (tych)                   tu/(mi) wysokie
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x
@@ -33,6 +33,7 @@ leży w ziemi i w ryzomie - lasów zagadka
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
 właściciel kabli ryzomu, system nieskończony, ba mityczny
+właściciel korzeni zaparzy z otchłani
 
 widzę a jestem ślepy na tym twardym łonie
 - betonem wyłożone (ym)

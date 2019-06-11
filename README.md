@@ -12,16 +12,15 @@ Long intro?
 
 jadę dalej lasem - lasem sztucznych praaawd (praw)
 - wytyczonych w darni ścian
-
 twoja zwojem przeplatana mantra - start (trwa)
 na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
-leży w ziemi i w ryzomie (10) - lasów zagadka (5)                                          (lasów zagadka)
-w ślad tych łąk, ćma (nie drzemie) gdy lata w nocy (11) - po świadkach (3) - po świadkach (po świadkach, poświadczam) -pośród łąk-
-(trop w podziemnej sieci) trop jest w sieci - nie ocieniam was (nie śmiem jej oceniać) (11) - po poszlakach (4) (po poszlakach)   (prosty)(każąc mnie skazując)
-nim nie zetną nam wysokich tui (10) - dających światła (5)                  (tych)                   tu/(mi) wysokie
+leży w ziemi i w ryzomie - lasów zagadka
+- lata(jące) ćmy śladem ognisk (w nocy) rzuca cienie w nocy - po świadkach                      -pośród łąk- / lata nie drzemią
+wiesz ten trop jest w sieci, nie śmiem jej oceniać  - po poszlakach  (prosty)(każąc mnie skazując) (w podziemnej sieci) nie ocieniam was 
+lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
 
 jadę dalej lasem - lasem sztucznych praaawd (praw)
 - wytyczonych w darni ścian
@@ -32,7 +31,7 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćmy hc doswiadczenie lotem - poświadczam           hcx to) ćma  ćma i/plus hc x
+- ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
 mech nas gna - skupiam wzrok (na drodze) - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 często nie po drodze

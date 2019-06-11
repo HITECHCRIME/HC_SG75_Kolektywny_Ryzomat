@@ -18,8 +18,9 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-- lata(jące) ćmy śladem ognisk (w nocy) rzuca cienie w nocy - po świadkach                      -pośród łąk- / lata nie drzemią
-wiesz ten trop jest w sieci, nie śmiem jej oceniać  - po poszlakach  (prosty)(każąc mnie skazując) (w podziemnej sieci) nie ocieniam was 
+- ćma w ślad tych ognisk rzuca cieni w nocy - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
+wiesz ten trop jest w sieci, nie śmiem jej oceniać (obrastać) - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
+nie ocieniam was, wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
 
 jadę dalej lasem - lasem sztucznych praaawd (praw)

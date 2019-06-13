@@ -34,7 +34,7 @@ ALE PUSTA TAKA SARNA
 
 LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
 - ćmy w ślad ognisk - cieni taniec w nocy - PO ŚWIADKACH             ((w nocy) rzuca(ja))  cienie tancza w nocy - po swiadkach
-trop jest prosty - nie oceniam - PO POSZLAKACH
+trop jest w sieci - nie oceniam - PO POSZLAKACH
 nim nie zetną (nam) wysokich tui - DAJĄCYCH ŚWIATŁA
 
 leży w ziemi i w ryzomie - lasów zagadka

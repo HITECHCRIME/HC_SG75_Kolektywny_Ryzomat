@@ -19,7 +19,7 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćma w ślad ognisk rzuca taniec cieni w nocy - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
-wiesz ten trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
+(wiesz ten) trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
 nie śmiem jej oceniać (nie ocieniam was) wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
 

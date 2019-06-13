@@ -1,4 +1,16 @@
-# HC_SG75_Ryzomat
+![](57175019_319474918741616_8502199518755923887_n.jpg)
+
+# MOTHNODE_ Ryzomat
+
+**Listen now:** x
+
+## Project Data
+
+Description.
+
+**Title:** Ryzomat / **Featuring:** MOTHNODE
+
+**Production:** x / **Lyrics:** MOTHNODE
 
 FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Beat 2019
 
@@ -119,3 +131,5 @@ Oooh it goes nicely now that i think of it with the scrolls wrapped
 Because fresh tattooes are wrapped usually ;)
 And sarna here means a dog with disease in the skin
 Perro sarnoso Or chanda
+
+## Notes

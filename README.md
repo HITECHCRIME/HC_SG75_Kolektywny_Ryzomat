@@ -6,43 +6,41 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 ```
 
-Long intro?
+(Long intro?)
 
-jadę dalej lasem - lasem sztucznych prawd
-- wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start
-na konarach martwych wydziarana prawda
+JADĘ DALEJ LASEM - LASEM SZTUCZNYCH PRAWD
+- WYTYCZONYCH W DARNI ŚCIAN
+TWOJA ZWOJEM PRZEPLATANA MANTRA START 
+NA KONARACH MARTWYCH WYDZIARANA PRAWDA
 
-ale pusta taka sarna
+ALE PUSTA TAKA SARNA
 
-leży w ziemi i w ryzomie - lasów zagadka
+LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
 - ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
 mech nas gna - skup (swoj) ten wzrok - na tych szlakach
-księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
+KSIĘŻYC PŁONIE / DZIŚ OTWIERA (ku nam) OKO - jego (mrugające) światło to - praaaa-wda to prawda
 praaaa-wda to prawda
 często nie po drodze
 
 0:45
 
-jadę dalej lasem - lasem sztucznych prawd
-- wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start
-na konarach martwych wydziarana prawda
+JADĘ DALEJ LASEM - LASEM SZTUCZNYCH PRAWD
+- WYTYCZONYCH W DARNI ŚCIAN
+TWOJA ZWOJEM PRZEPLATANA MANTRA START 
+NA KONARACH MARTWYCH WYDZIARANA PRAWDA
 
-ale pusta taka sarna
+ALE PUSTA TAKA SARNA
+
+LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
+ćmy w ślad ognisk - taniec cieni lata - PO ŚWIADKACH             ((w nocy) rzuca(ja))
+trop jest prosty - (mchu) nie oceniam - PO POSZLAKACH
+nim nie zetną nam wysokich tui - DAJĄCYCH ŚWIATŁA
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćmy w ślad ognisk (w nocy) rzuca(ja) taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
+- ćma w ślad ognisk (w nocy) rzuca(ja) taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące)
 (wiesz ten) trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
 nie śmiem jej oceniać (nie ocieniam was) wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
-
-leży w ziemi i w ryzomie - lasów zagadka
-ćmy w ślad ognisk - taniec cieni lata - po świadkach             ((w nocy) rzuca(ja))
-trop jest prosty - nie oceniam - po poszlakach
-nim nie zetną nam wysokich tui - dających światła
-
-
 
 leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)
@@ -59,7 +57,9 @@ trwa / praw
 śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw (praw)
 x
 kronia poniem wszystko względne wszystko wszystkim jedno - tak____
-na wyjeździe z tej naszej natury postawiona bramka
+NA WYJEŻDZIE Z TEJ NASZEJ NATURY POSTAWIONA BRAMKA 
+
+ALE RZUCAM TE WYZWANIA
 
 na wyjeździe z tej naszej natury postawiona bramka
 na konarach martwych wydziarana prawda (trwa)

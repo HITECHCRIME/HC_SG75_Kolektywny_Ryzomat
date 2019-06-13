@@ -10,22 +10,25 @@ Long intro?
 
 0:45
 
-jadę dalej lasem - lasem sztucznych praaawd (praw)
+jadę dalej lasem - lasem sztucznych prawd
 - wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start (trwa)
+twoja zwojem przeplatana mantra - start
 na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćma w ślad ognisk w nocy rzuca taniec cieni  - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
+- ćma w ślad ognisk (w nocy) rzuca taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
 (wiesz ten) trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
 nie śmiem jej oceniać (nie ocieniam was) wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
 
-jadę dalej lasem - lasem sztucznych praaawd (praw)
+
+
+
+jadę dalej lasem - lasem sztucznych prawd
 - wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start (trwa)
+twoja zwojem przeplatana mantra - start
 na konarach martwych wydziarana prawda
 
 ale pusta taka sarna
@@ -46,6 +49,8 @@ właściciel korzeni zaparzy z otchłani
 
 widzę a jestem ślepy na tym twardym łonie
 glitche widzę, niby ta natura, ale betonem wyłożona
+
+trwa / praw
 
 śn(p)ią nie tylko czasem - czasem próżnych spraaaaaw (praw)
 x

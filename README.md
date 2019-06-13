@@ -20,7 +20,6 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 wind
 seagulls/birds
 (Long intro?)
-
 turu turu turu
 
 JADĘ DALEJ LASEM - LASEM SZTUCZNYCH PRAWD
@@ -31,10 +30,11 @@ NA KONARACH MARTWYCH WYDZIARANA PRAWDA
 ALE PUSTA TAKA SARNA
 
 LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
-- ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
-mech nas gna - skup (swoj) ten wzrok - na tych szlakach
-KSIĘŻYC PŁONIE / DZIŚ OTWIERA (ku nam) OKO - (jego (mrugające) światło to - praaaa-wda TO PRAWDA
+- ĆMY HC DOŚWIADCZENIE LOTEM - POŚWIADCZAM                             
+MECHA NAS GNA - SKUP (swoj) TEN WZROK - NA TYCH SZLAKACH
+KSIĘŻYC PŁONIE DZIŚ OTWIERA OKO - TO PRAWDA
 
+KSIĘŻYC PŁONIE DZIŚ OTWIERA (ku nam) OKO - (jego (mrugające) światło to - praaaa-wda TO PRAWDA
 (praaaa-wda to prawda
 często nie po drodze)
 

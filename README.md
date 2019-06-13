@@ -18,7 +18,7 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćma w ślad ognisk rzuca taniec cieni w nocy - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
+- ćma w ślad ognisk w nocy rzuca taniec cieni  - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
 (wiesz ten) trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
 nie śmiem jej oceniać (nie ocieniam was) wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
@@ -32,7 +32,7 @@ ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
-mech nas gna - skupiam wzrok (na drodze) - na tych szlakach
+mech nas gna - skup ten wzrok - na tych szlakach
 księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
 praaaa-wda to prawda
 często nie po drodze

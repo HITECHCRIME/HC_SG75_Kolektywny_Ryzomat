@@ -98,3 +98,21 @@ acronym
 
 Sara Mora x Helve AVR - visuals. Hitech Crime - audio.
 Bo ja chce motyw miasta przewijajacy sie np ze zwierzetami ktore jednocza sie z ryzomem w lesie i staja sie jego czescia, a sarna to metafory czlowieka w tym miejskim lesie. Te sarny/ludzie by wtapialy sie w otoczenie jakby zapadaly sie. Myslalem zeby sie rozkladaly i jakies lekkie cgi ze obrastaja w korzenie. No i motyw lamp-drzew dajacych swiatlo nie zawarty. To ten traczek obrobimy wizualnie z Toba, lasy, miasto, fury, noc. Moss as money. Motyw "don't look at the moon" (w momentach kiedy się pojawia księżyc w ujęciu). Sarna moment - Sara Mora is being devoured raw by the rhizome.
+
+Moss is the money
+Music video is going to be the city compared to actual nature which devours us and becomes one with us in a brutal way
+So there is gonna be like animals and people in a forest being quickly overgrown with moss and roots
+Slowly being moved beneath the ground
+My friend Sara’s gonna help me. Also funny enough all of us call her Sarna
+but that line has nothing to do with her but it came out funny
+It is more about the tattooed truths
+That people are like animals but tattooed with false truths
+Dead branch is a human limb here
+and even tho their truths are tattooed on them they are empty
+That is the main meaning of this line and chorus
+That they always try to start something and act false
+That’s the mantra “start”
+Oooh it goes nicely now that i think of it with the scrolls wrapped
+Because fresh tattooes are wrapped usually ;)
+And sarna here means a dog with disease in the skin
+Perro sarnoso Or chanda

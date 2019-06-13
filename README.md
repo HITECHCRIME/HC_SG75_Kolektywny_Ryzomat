@@ -5,8 +5,11 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 ## Lyrics
 
 ```
-
+wind
+seagulls/birds
 (Long intro?)
+
+turu turu turu
 
 JADĘ DALEJ LASEM - LASEM SZTUCZNYCH PRAWD
 - WYTYCZONYCH W DARNI ŚCIAN

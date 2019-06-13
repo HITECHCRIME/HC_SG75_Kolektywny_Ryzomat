@@ -8,6 +8,20 @@ FREE (BRUTAL) SCARLXRD x Lezter Type Beat - BEAST  Ft. Smokepurpp  Free Type Bea
 
 Long intro?
 
+jadę dalej lasem - lasem sztucznych prawd
+- wytyczonych w darni ścian
+twoja zwojem przeplatana mantra - start
+na konarach martwych wydziarana prawda
+
+ale pusta taka sarna
+
+leży w ziemi i w ryzomie - lasów zagadka
+- ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
+mech nas gna - skup (swoj) ten wzrok - na tych szlakach
+księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
+praaaa-wda to prawda
+często nie po drodze
+
 0:45
 
 jadę dalej lasem - lasem sztucznych prawd
@@ -18,27 +32,17 @@ na konarach martwych wydziarana prawda
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka
-- ćma w ślad ognisk (w nocy) rzuca taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
+- ćmy w ślad ognisk (w nocy) rzuca(ja) taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące) 
 (wiesz ten) trop jest w sieci, przestałem (nie musisz) w mech obrastać - po poszlakach    (prosty)(każąc mnie skazując) (w podziemnej sieci) 
 nie śmiem jej oceniać (nie ocieniam was) wszyscy tu
 lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dających światła                 (tych) tu/(mi) wysokie
 
-
-
-
-jadę dalej lasem - lasem sztucznych prawd
-- wytyczonych w darni ścian
-twoja zwojem przeplatana mantra - start
-na konarach martwych wydziarana prawda
-
-ale pusta taka sarna
-
 leży w ziemi i w ryzomie - lasów zagadka
-- ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
-mech nas gna - skup ten wzrok - na tych szlakach
-księżyc płonie / dziś otwiera (ku nim) oko - jego (mrugające) światło to - praaaa-wda to prawda
-praaaa-wda to prawda
-często nie po drodze
+ćmy w ślad ognisk - taniec cieni lata - po świadkach             ((w nocy) rzuca(ja))
+trop jest prosty - nie oceniam - po poszlakach
+nim nie zetną nam wysokich tui - dających światła
+
+
 
 leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)

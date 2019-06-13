@@ -18,9 +18,10 @@ ALE PUSTA TAKA SARNA
 LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
 - ćmy hc doswiadczenie lotem - poświadczam                              hcx to) ćma  ćma i/plus hc x
 mech nas gna - skup (swoj) ten wzrok - na tych szlakach
-KSIĘŻYC PŁONIE / DZIŚ OTWIERA (ku nam) OKO - jego (mrugające) światło to - praaaa-wda to prawda
-praaaa-wda to prawda
-często nie po drodze
+KSIĘŻYC PŁONIE / DZIŚ OTWIERA (ku nam) OKO - (jego (mrugające) światło to - praaaa-wda TO PRAWDA
+
+(praaaa-wda to prawda
+często nie po drodze)
 
 0:45
 
@@ -32,9 +33,9 @@ NA KONARACH MARTWYCH WYDZIARANA PRAWDA
 ALE PUSTA TAKA SARNA
 
 LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
-ćmy w ślad ognisk - taniec cieni lata - PO ŚWIADKACH             ((w nocy) rzuca(ja))
-trop jest prosty - (mchu) nie oceniam - PO POSZLAKACH
-nim nie zetną nam wysokich tui - DAJĄCYCH ŚWIATŁA
+- ćmy w ślad ognisk - cieni taniec w nocy - PO ŚWIADKACH             ((w nocy) rzuca(ja))  cienie tancza w nocy - po swiadkach
+trop jest prosty - nie oceniam - PO POSZLAKACH
+nim nie zetną (nam) wysokich tui - DAJĄCYCH ŚWIATŁA
 
 leży w ziemi i w ryzomie - lasów zagadka
 - ćma w ślad ognisk (w nocy) rzuca(ja) taniec cieni - po świadkach                      -pośród łąk- / lata nie drzemią lata(jące)

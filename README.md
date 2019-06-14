@@ -133,3 +133,5 @@ And sarna here means a dog with disease in the skin
 Perro sarnoso Or chanda
 
 ## Notes
+
+Send a message to maniek516 on Instagram to let him know the song is out.

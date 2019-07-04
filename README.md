@@ -136,3 +136,15 @@ Perro sarnoso Or chanda
 ## Notes
 
 Send a message to maniek516 on Instagram to let him know the song is out.
+
+driving through the woods - woods of false truths
+walls signed in the ground
+wrapped in scrolls your mantra - start
+on dead branches truth tattooed
+
+but so empty such a doe
+
+lies in ground and the rhizome - the riddle of the forest
+moth’s HC experience with flight - i attest (HITECH CRIME EXPERIENCE)
+moss is after us - focus your sight - on these paths
+moon is burning, opens its eye today - it’s the truth (CONTEXT: don’t look at the moon thing, where the moon is a giant snake’s eye)

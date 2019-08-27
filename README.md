@@ -32,7 +32,7 @@ ALE PUSTA TAKA SARNA
 
 LEŻY W ZIEMI I W RYZOMIE - LASÓW ZAGADKA
 - ĆMY HC DOŚWIADCZENIE LOTEM - POŚWIADCZAM                             
-MECHA NAS GNA - SKUP (swoj) TEN WZROK - NA TYCH SZLAKACH
+MECH NAS GNA - SKUP (swoj) TEN WZROK - NA TYCH SZLAKACH
 KSIĘŻYC PŁONIE DZIŚ OTWIERA OKO - (co zobaczysz) TO PRAWDA 
 
 KSIĘŻYC PŁONIE DZIŚ OTWIERA (ku nam) OKO - (jego (mrugające) światło to - praaaa-wda TO PRAWDA
@@ -61,6 +61,7 @@ lecimy komfortem (komfort jak pocisk) nim nie zetną nam wysokich tui - dającyc
 
 leży w ziemi i w ryzomie - lasów zagadka
 (las już płonie, lasu zgliszcza)
+
 dołączam do sieci korzeni, impulsów szał
 przestrzeni, gnam przez nołdy, wzrok rozmyty
 właściciel kabli ryzomu, system nieskończony, ba mityczny
@@ -89,7 +90,6 @@ tułamy przez ten gres jak zwierzęta w klatkach
 tylko stealth, żadna marka
 ale suta taka salwa
 ale gusta nie rozważaj
-
 ale pusta taka sarna
 
 leży w ziemi i w ryzomie - lasów zagadka

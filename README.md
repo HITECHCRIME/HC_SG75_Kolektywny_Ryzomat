@@ -7,7 +7,7 @@ change for square format
 
 ## Project Data
 
-Description.
+Flagship track of the Ryzomat EP touching on the issues of civilization and human nature.
 
 **Title:** Ryzomat / **Featuring:** MOTHNODE
 

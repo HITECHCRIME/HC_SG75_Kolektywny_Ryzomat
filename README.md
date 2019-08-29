@@ -1,4 +1,5 @@
 ![](69732905_2464734173810417_1078055096446615552_n.jpg)
+change for square format
 
 # MOTHNODE_ Ryzomat
 

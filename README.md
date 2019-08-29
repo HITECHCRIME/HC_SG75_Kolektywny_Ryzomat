@@ -174,6 +174,9 @@ Ksiezyc plonie poniewaz pewna prawda zostaje odslonieta
 Mozliwosc gloszenia swojej prawdy jest tym swiatlem
 Ktore w kazdej chwili moze zostac sciete
 I to z takich podstawowych konceptow co mi chodza po glowie
+Jesli chodzi o te piosenke
+A skupianie sie na “tych szlakach” oznacza skupienie sie nie na celu ostatecznym a na procesie i drodze ktora pokonujemy
+Kosmiczny wegorz ma pokazywac po prostu zmiane perspektywy/skali rzeczywistosci przez poznanie jej natury.
 
 
 

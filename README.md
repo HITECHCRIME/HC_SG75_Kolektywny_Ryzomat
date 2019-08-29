@@ -148,3 +148,32 @@ lies in ground and the rhizome - the riddle of the forest
 moth’s HC experience with flight - i attest (HITECH CRIME EXPERIENCE)
 moss is after us - focus your sight - on these paths
 moon is burning, opens its eye today - it’s the truth (CONTEXT: don’t look at the moon thing, where the moon is a giant snake’s eye)
+
+Tekst ma rozne interpretacje bo o to w tym chodzi zeby tekst mial jak najwiecej punktow zaczepienia dopaminy zwiazanych z jakas emocja sluchacza. Przypomnij sobie tez jak kiedys gadalismy o zestawieniu w tej piosence konceptow urban creatures (urban jungle) (ujecia z mustangiem) i lesnych zwierzat i “mitycznego” lasu jako kontrastujacych ale takich samych ostatecznie (przeplatajace sie sceny i motywy ostatecznie beda podobne). Gdzies tam jeszcze byl motyw zeby byly sceny ludzi zapadajacych sie w mech i stajacych sie czescia ryzomatu. Zwierzat tez. Jako taki creepy element synergii z ludzka natura. Tytulowy ryzomat, czyli bazujac na filozofii ryzomatycznej ze wszystko jest siecia powiazan to wlasnie w tej piosence to wlasnie polaczony ekosystem prawd ktore uznajemy za prawdziwe z automatu, nie zawsze ku naszemu dobru. Powtarzamy sobie te mantry zebysmy rozpoczeli cos “start” w nieskonczonosc bo nie okreslilismy swojej wartosci na tych “zwojach” przez co nie do konca zyjemy i glosimy martwe prawdy ktore obwieszczamy swiatu (parafraza tutaj jest tatuaz). Sarna jest metafora na kazdego czlowieka, bedzie sie tez przewijal wilk
+
+Mech nas gna bo stoimy w zastoju
+I nas pożre (doslownie na video, wsiakniecie w ziemie)
+Jest tez motyw urban jungle wersja czyli ze mech to hajs
+I ze napedza cywilizacje Taka analogia
+Ksiezyc plonie dzis otwiera oko to prawda
+To reference zarowno do konceptu “dark moon brands”
+Czyli brandow ktore chca przekazywac prawdy ktore nie do konca sa przyjemne i sa chowane “na ciemniej stronie ksiezyca”
+Oraz do wiralnego story ktore sie pojawilo jakis czas temu w necie
+Gdzie sytuacja jest nastepujaca. Nagle z odbiornikow zaczyna wszedzie nadawac komunikat “don’t look at the sky” “don’t come out of your house” “close your windows”
+W telewizji pojawia sie podobny komunikat alarmowy
+Glitchuje przez normalny program telewizyjny i co jakis czas na ulamek sekundy widac klatke ktora pokazuje tekst “look at the sky” (jakby ktos sie wlamywal i probowal modyfikowac wiadomosc)
+Ludzie nie wiedza co robic
+Jedni sluchaja inni nie
+I wychodza i patrza w nocne niebo
+Na pelnu ksiezyc
+Ci ktorzy spojrza na ksiezyc maja bardzo odmienne reakcje ale wiekszosc bedzie probowala naklonic innych do wyjscia i spojrzenia w niebo “zeby poznac prawde” “zeby poznac prawdziwa nature”
+Inni, Ci nieco mniej odporni psychicznie, pomalu traca kontrole nad soba i nie wiedza co ze soba zrobic stojac “oko w oko” z wielka zrenica ksiezyca w pelni ktory okazuje sie byc gigantycznym okien kosmicznego wegorza ktory wlasnie sie obudzil po milleniach w uspieniu oplatajac Ziemie. Morał tego segmentu jest taki ze prawda jest wzgledna i ze w kazdej chwili moze sie okazac ze niektore prawdy byly specjalnie zaprojektowanymi “wytyczonymi w darni - niewidzialnymi spolecznymi scianami albo prawami natury”
+Albo byly po prosty puste bez poparcia w rzeczywistosci
+Ksiezyc plonie poniewaz pewna prawda zostaje odslonieta
+“Poki nie zetna nam wysokich tui dajacych swiatla” to jeszcze nie jest dopracowane ale zamysl jest taki ze bedzie kontrast miedzy wysokimi sosnami/tujami w glebokim borze a setkami lamp ulicznych i infrastruktury ktora daje nam “swiatlo/zdolnosci obserwacji i ustalania swoich wlasnych prawd”
+Mozliwosc gloszenia swojej prawdy jest tym swiatlem
+Ktore w kazdej chwili moze zostac sciete
+I to z takich podstawowych konceptow co mi chodza po glowie
+
+
+

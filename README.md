@@ -7,7 +7,7 @@ change for square format
 
 ## Project Data
 
-Flagship track of the Ryzomat EP touching on the issues of civilization, interconnectedness and human nature.
+Flagship track of the Ryzomat EP touching on the issues of civilization, interconnectedness and human nature. Song uses the theory of rhizome as a basis for creative expression.
 
 **Title:** Ryzomat / **Featuring:** MOTHNODE
 

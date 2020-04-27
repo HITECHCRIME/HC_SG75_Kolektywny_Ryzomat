@@ -192,4 +192,37 @@ A skupianie sie na “tych szlakach” oznacza skupienie sie nie na celu ostatec
 Kosmiczny wegorz ma pokazywac po prostu zmiane perspektywy/skali rzeczywistosci przez poznanie jej natury.
 
 
+MOTHNODE_ Ryzomat [POLISH RAP TRANSLATED]
 
+/// Cinematic Narrative Universe of @hitechcrime | Audiovisual Microlabel . /// OPERATIVE_ @mothnode /// TRUE AGENTS OF HITECH CRIME UNIVERSE COMMENT UNDERNEATH! . /// TARGET_ MOTHNODE_ Ryzomat /// STATUS_ Song Prototype . /// BEAT_ Lezter .
+
+This time a Polish song - prototype HC_SG75 called Ryzomat (based on the philosophy of rhizome and its ties to human civilization). It is also inspired by the “don’t look at the moon” motif that has been circulating around some time ago on the Internet. Research it on your own, it is a real mindbender. Let me know what you think! .
+
+There is already a music video and short film being written and visualized for this one. It will be one of the narrative chapters of @hitechcrime universe. .
+
+ENGLISH LYRICS TRANSLATION “i keep driving through the woods
+woods of false truths
+the walls marked out in the turf
+wrapped in scrolls your mantra - start
+on dead branches truth tattooed
+
+but so empty such a doe
+
+lies in ground and the rhizome
+the riddle of the forest
+moth’s HC experience with a flight i attest
+moss is after us, focus your sight on these paths
+moon is burning, opens its eye tonight
+it’s the truth” .
+
+POLISH LYRICS . “jadę dalej lasem, lasem sztucznych prawd
+wytyczonych w darni ścian
+twoja zwojem przeplatana mantra start
+na konarach martwych wydziarana prawda
+
+ale pusta taka sarna
+
+leży w ziemi i w ryzomie lasów zagadka
+ćmy HC doświadczenie lotem poświadczam
+mech nas gna skup ten wzrok, na tych szlakach księżyc płonie dziś otwiera oko
+to prawda” . /// NODES STEMS_ #trap #trapmusic🔉🔊 #dystopian #rap #trapper #newmusic #futura #mothnode #cinematic #narrative #universe #storyworld #mantra #polskitrap #brutal #trapmusic #humanedge #darktrap #trapmetal #trapcore #visualartists #hitechcrime #metal #deathcore #darktrap #polskirap #polskihiphop #dontlookatthemoontonight #deathtrap #rhizome
